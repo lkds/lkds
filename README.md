@@ -1,4 +1,4 @@
-### Hi there 👋
+### 今宵风露 星辰昨夜
 
 <!--
 **lkds/lkds** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<img style="border-radius:10px" src="https://tvax4.sinaimg.cn/large/a540b426ly1ggxzd29njoj21jk104h8m.jpg" alt="15781bc386bea61e6d43ea2166a08a45" width="2000" data-width="2000" data-height="1300">
+
+### 碎碎念
+- 博客👉[影照惊鸿](https://blog.fnzs.tk) 不定期更新，欢迎添加友链
+- 逼乎👉[飞鸟再世](https://www.zhihu.com/people/liu-hao-86-14-11) 小透明
+- 推特👉[James](https://twitter.com/Fnzs0x0) 随缘
+- 更多精彩，未来可期（或许
