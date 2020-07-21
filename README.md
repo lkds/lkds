@@ -18,6 +18,6 @@ Here are some ideas to get you started:
 
 ### 碎碎念
 - 博客👉[影照惊鸿](https://blog.fnzs.tk) 不定期更新，欢迎添加友链
-- 逼乎👉[飞鸟再世](https://www.zhihu.com/people/liu-hao-86-14-11) 小透明
-- 推特👉[James](https://twitter.com/Fnzs0x0) 随缘
+- 逼乎👉[飞鸟再世](https://www.zhihu.com/people/liu-hao-86-14-11) 透明，透明，透明！
+- 推特👉[@Fnzs0x0](https://twitter.com/Fnzs0x0) 或寻一日以飘零
 - 更多精彩，未来可期（或许
