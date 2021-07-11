@@ -30,7 +30,7 @@ Here are some ideas to get you started:
 
 
 
-- 🌱 I’m currently learning artificial intelligent embedded education or future network
+- 🌱 Major in Computer Science
 - 💬 Ask me about everything you like
 - 📫 How to reach me: fnzs#foxmail.com
 - ⚡ Fun fact: Code life, life code
